@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @reno1247
+- 👀 I’m interested in making bad games
+- 🌱 I’m currently learning how to make a bad game
+- 💞️ I’m looking to collaborate on bad games
+- 📫 How to reach me show me your bad games @ ncollens1112@yahoo.com
